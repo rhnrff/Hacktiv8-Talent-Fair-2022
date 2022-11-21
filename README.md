@@ -1,1 +1,1 @@
-# Hacktiv8-Talent-Fair-2022
+# Hacktiv8 Talent Fair 2022
